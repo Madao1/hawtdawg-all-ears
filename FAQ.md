@@ -22,3 +22,16 @@ Scroll down to the section called "Passions" and tell potential mates and friend
 all about the treats and toys that make your tail wag.
 
 When you're done, click "Save Changes" to show the world.
+
+## Photos are nice and all, but I don't see very well. How can I smell the other dogs?
+照片很好，但我看不太清楚。我怎样才能闻到其他狗的味道？
+
+We regret that we are unable to offer our customers smell-o-vision at this time.
+很抱歉，我们目前无法向顾客提供视觉嗅觉产品。
+
+As soon as human technology catches up to dog noses, we'll be sure to add a scent feature
+to the app.
+一旦人类技术赶上狗的鼻子，我们一定会在应用程序中添加气味功能。
+
+In the meantime, why not meet up at the dog park to get a whiff of your new friend?
+与此同时，为什么不在狗狗公园见面，闻闻你的新朋友呢？
